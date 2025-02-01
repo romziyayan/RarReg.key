@@ -3,5 +3,5 @@ Lalu copas / copy paste file RarReg ke dalam folder installasi winRAR (biasanya 
 Done... WinRAR anda sudah full version (registered) ^_^<br/>
 Ingat, hanya di copas saja.. tidak perlu di klik<br/>
 <br/>
-Z3R0 (CMTeam)
+Z3R0 (CMTeam)<br/>
 CoDAFault
