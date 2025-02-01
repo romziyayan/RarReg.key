@@ -4,5 +4,4 @@ Done... WinRAR anda sudah full version (registered) ^_^<br/>
 Ingat, hanya di copas saja.. tidak perlu di klik<br/>
 <br/>
 <br/>
-Z3R0 (CMTeam)<br/>
-www.cyber-meong.net
+Z3R0 (CMTeam)
